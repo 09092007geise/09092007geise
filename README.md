@@ -1,11 +1,11 @@
 - 👋  ola sou a geiseele 
-- 👀 
--
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-09092007geise/09092007geise is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+- 👀 tenho um sonho de ser agronoma e cursar uma faculdade 
+- tenhos boas notas não sei controlar meu tom de voz
+- morro de medo de cavalo tenho um estremo panico de cavalo mas eu estou tentando perder esse medo (panico)
+- meus pais são da pecuaria 
+- sou goleira de um time de futebol da aonde eu morro
+- tenho 3 irmaos sendo uma (adotada) 
+- vou aprender a andar de moto 
+- vou começar a mecher com a colheitadeira
+- trabalho na padaria
 --->
