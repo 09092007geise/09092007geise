@@ -7,5 +7,5 @@
 - tenho 3 irmaos sendo uma (adotada) 
 - vou aprender a andar de moto 
 - vou começar a mecher com a colheitadeira
-- trabalho na padaria
+- trabalho em uma padaria
 --->
